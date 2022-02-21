@@ -1,1 +1,0 @@
-# Silver-ETFs-Price-Forecast
